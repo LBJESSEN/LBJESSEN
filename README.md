@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LBJESSEN
+- 👀 I’m interested in - You name it
+- 🌱 I’m currently learning to fly.
+- 💞️ I’m not looking to collaborate right now.
+- 📫 How to reach me - lbj@jessens.com
